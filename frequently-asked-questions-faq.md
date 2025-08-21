@@ -30,4 +30,4 @@ Head to the **Support** section and submit a ticket. Our team reviews requests r
 
 ***
 
-💡 _Tip: Check this page regularly as we’ll keep adding more FAQs._
+💡 _Tip: Check this page regularly as we’ll keep adding more and more FAQs._&#x20;
